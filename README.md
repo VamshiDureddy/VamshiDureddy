@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vamshi-Dureddy
+- 👋 Hi, I’m @VamshiDureddy
 - 👀 I’m interested in converting IDEA's into Application's
 - 📫 How to reach me vamshidureddy@outlook.com
 
